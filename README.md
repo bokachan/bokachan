@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bokachan
-- 👀 I’m interested in  very youg girl ({4;9yrs})
+- 👀 I’m interested in  very young girl ({4;9yrs})
 - 🌱 I’m currently learning how to hang out with ur mother
 - 💞️ I’m looking to collaborate on the ass of ur little sister
 - 📫 How to reach me ...
